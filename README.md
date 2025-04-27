@@ -80,7 +80,7 @@ Let's make Netflix analysis even more awesome together! 🙌
 ## 📞 Contact
 
 - 📧 Email: nareshjhiv8@gmail.com
-- 💼 LinkedIn: [Naresh.BA](www.linkedin.com/in/naresh-b-a-448b7929b)
+- 💼 LinkedIn: [Naresh.BA](naresh-b-a-448b7929b)
 
 ---
 
